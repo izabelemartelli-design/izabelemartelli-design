@@ -1,16 +1,18 @@
-## Hi there 👋
+## oii👋
 
 <!--
-**izabelemartelli-design/izabelemartelli-design** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**✨meu nome e izabele✨ 
 
-Here are some ideas to get you started:
+entre em contato comigo @izabelemartelli
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+-:✈️ gosto de conhecer coisas novas 
+- 🌱 quero fazer agronomia 
+- 👯 sou pessima em danca 
+- 💬 gosto de conversar bastante 
+- 💟 amo meu cavalo e cachorras 
+- 💐 amo minha familia e minha namorada 
+
+![](https://tenor.com/pt-BR/view/gn-good-night-milk-and-mocha-gif-6201229444470982608)
+![](https://tenor.com/pt-BR/view/cat-gif-6997856904020830598)
+
