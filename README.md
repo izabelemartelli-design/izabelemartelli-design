@@ -1,5 +1,3 @@
-**✨meu nome e izabele✨ 
-
 entre em contato comigo @izabelemartelli
 
 
