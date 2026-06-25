@@ -9,5 +9,5 @@ entre em contato comigo @izabelemartelli
 - 💐 amo minha familia e minha namorada 
 
 ![](https://media1.tenor.com/m/YJK1ks8ecUQAAAAC/batman-thumbs-up.gif).
-![](https://tenor.com/pt-BR/view/cat-gif-6997856904020830598)
 
+![](https://media1.tenor.com/m/BIrRW-YurwAAAAAd/batman-and-spiderman-hug-hug.gif)
