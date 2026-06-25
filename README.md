@@ -8,7 +8,6 @@ entre em contato comigo @izabelemartelli
 - 💟 amo meu cavalo e cachorras 
 - 💐 amo minha familia e minha namorada 
 
-![](https://tenor.com/pt-BR/view/gn-good-night-milk-and-mocha-gif-6201229444470982608)
-
+![](https://media1.tenor.com/m/YJK1ks8ecUQAAAAC/batman-thumbs-up.gif).
 ![](https://tenor.com/pt-BR/view/cat-gif-6997856904020830598)
 
